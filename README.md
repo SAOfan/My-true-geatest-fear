@@ -19,4 +19,3 @@ so when people ask for my help be it that they do not know or that they think sp
 
 want to help others but than in the end I don't even contribute anything in the end
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.shutterstock.com%2Fsearch%2Ffear&psig=AOvVaw1_WQkMseH2idMONp8VIu2W&ust=1678292040105000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCKDntJibyv0CFQAAAAAdAAAAABAE)
